@@ -1,0 +1,1 @@
+# pagel-statistics-exercises
